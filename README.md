@@ -1,1 +1,1 @@
-# rs-school
+https://GITHUB-Predatorovich.github.io/rsschool-cv/cv
